@@ -1,2 +1,2 @@
-# ANUJ
-MY PERSONAL REPOSITORY
+###  HI... BUDDY
+  HERE ARE SOME  IDEAS TO GET STARTED:                                                                                                                                               3.<CURRENTLY LEARNING>.....C++ LANGUAGE,JAVASCRIPT                                                                                                               4."I AM CURRENTLY LOOKING TO COLLABORATE".....AWS CLOUD9                                                                                                                           5.WANT TO KNOW MORE ABOUT ME....?                                                                                                                                                                      ,,INSTA ID:max_anuj07                                                                                                                         6.FUN FACT:::::LIKE TO PLAY FOOTBALL &  CRICKET 
